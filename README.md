@@ -28,7 +28,7 @@
 1.  一个可接收短信+86的手机号
 2.  telegram软件（官方正版）
 3.  干净的节点（前部分有介绍）
-购买链接：https://sakura-cat3.com/register?code=xZpbsERo 
+购买链接：https://xn--cp3a08l.com/register?code=LgVjsKEw&cover=sfw 
 #### 使用说明
 
 1. 安装好Telegram、Surfboard（提供安装包在本篇教程）
